@@ -6,4 +6,3 @@
 - 📫 How to reach me: [LinkedIn - @jingyulee-6767](linkedin.com/in/jingyulee-6767/)
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I love flying drones!
--->
